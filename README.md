@@ -17,6 +17,8 @@ ScaryMaze 3D - https://reusas.itch.io/scary-maze-3d
 
 Wavy Penguin - https://reusas.itch.io/wavy-penguin
 
+Survival Multiplayer - https://reusas.itch.io/survival-multiplayer
+
 LINK TO A MOD I MADE FOR GTA 5:
 
 https://www.gta5-mods.com/scripts/crackable-bottle-mod-reus42
